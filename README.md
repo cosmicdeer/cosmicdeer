@@ -1,7 +1,9 @@
 @cosmicdeer a.k.a Fawn ######
+
 17, She/Her 🏳️‍⚧️, UK
 
 Debian user, deer enthusiast.
+
 Studying Computer Science BSc
 
 Discord - @cosmicdeer
